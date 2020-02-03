@@ -1,1 +1,1 @@
-# chesyawhite.ru
+# https://chesya.github.io/chesyawhite.ru/
